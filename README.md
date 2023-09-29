@@ -3,8 +3,8 @@
 Welcome to my GitHub page, I hope you can find what you need 💭
 
 ### About me:
-- A lover of the technology world
-- A determined woman that is trying to find her place in the universe
+- A lover of technology world
+- A determined woman who is trying to find her place in the universe
 
 ### What am I doing now?
 🏎️ Finishing my graduation in Automotive Engineering
